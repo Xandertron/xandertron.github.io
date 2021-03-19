@@ -1,2 +1,2 @@
 # xandertron.github.io
-test website
+best website, just for my personal use please dont use the sm64 build :^)
